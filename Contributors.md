@@ -1,4 +1,4 @@
-| [Home](https://rkjmcgee.github.io/The-Pain-Rituals-Anthology/) | [Contributors](https://github.com/RKJMcGee/The-Pain-Rituals-Anthology/Contributors) | 
+| [Home](https://rkjmcgee.github.io/The-Pain-Rituals-Anthology/) | [Contributors](https://rkjmcgee.github.com/The-Pain-Rituals-Anthology/Contributors) | 
 # Contributors
 
 As a way of thanking all of those who helped work to make this project a reality, we wanted to give brief bios and links to relevant social media, websites, and so on so everyone is able to connect with those who are part of this project.
