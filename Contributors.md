@@ -9,7 +9,7 @@ This community consists of a variety of trans and gender expansive individual wi
 
 **Reily McGee (She/They) - Project Manager, Editor**
 
-Reily is a master's student at the University of Colorado - Boulder and a Fellow of the Center for Media, Religion, and Culture. Her research focuses on a variety of topics from games and religion to trans and disabled identity. They are also a poet, interactive fiction writer, game designer with various published and on-going projects. @RKJMcGee - Instagram and Twitter | [rkjmcgee.com](https://rkjmcgee.com)
+Reily is a master's student at the University of Colorado - Boulder and a Fellow of the Center for Media, Religion, and Culture. Her research focuses on a variety of topics from games and religion to trans and disabled identity. They are also a poet, interactive fiction writer, game designer with various published and on-going projects. @RKJMcGee - Instagram and Twitter Website - [rkjmcgee.com](https://rkjmcgee.com)
 
 **Lore Whittemore (She/Her) - Website Assistant**
 
