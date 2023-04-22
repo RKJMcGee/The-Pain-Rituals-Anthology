@@ -1,5 +1,5 @@
 | [Home](https://rkjmcgee.github.io/The-Pain-Rituals-Anthology/) | [Contributors](https://rkjmcgee.github.io/The-Pain-Rituals-Anthology/Contributors) | 
-# The Pain Rituals Anthology
+
 Welcome to The Pain Rituals Anthology website! This is a virtual collection of works dedicated to showing off the various ways pain is conceived and how pain is ritualized in various individuals. 
 
 ## **What Is A Pain Ritual**
