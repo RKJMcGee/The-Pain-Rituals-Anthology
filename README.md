@@ -9,3 +9,5 @@ In this sense, pain is a personal experience that is influenced through various 
 Thank you so much for considering a submission to this project! Submissions to the Anthology will close on **September 1st, 2023**. If you would like to submit, learn more about the submission with our [call for creation](https://docs.google.com/forms/d/e/1FAIpQLSe5tlTnk6k3N_70TEcg_cMTO5HAnKSBTcCRUlH4enPmNH2JEQ/viewform) from which you will learn all about what we are looking for in this project. Please read about our [review process](https://docs.google.com/document/d/1G0TtlNbHX-6UfpbeNCBXCIGftAE-m_OpNM9oj_YQWbg/edit?usp=sharing) before submitting. If you have any other questions or concerns, email reily.mcgee@colorado.edu and we will be happy to answer any question you may have!
 
 <img src="./assets/OmarDelawarHopeDespiteThePain.jpg" style="display: block; margin: auto;" />
+
+Image above by [Delawer Omar](https://www.deviantart.com/delawer-omar/gallery), a Syrian born artist, with all rights to the image reserved by Delawer Omar and viewable here due to explicit permissions by the artist.
