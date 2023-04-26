@@ -8,4 +8,4 @@ In this sense, pain is a personal experience that is influenced through various 
 ## **How Do I Submit To The Anthology?**
 Thank you so much for considering a submission to this project! Submissions to the Anthology will close on **September 1st, 2023**. If you would like to submit, learn more about the submission with our [call for creation](https://docs.google.com/forms/d/e/1FAIpQLSe5tlTnk6k3N_70TEcg_cMTO5HAnKSBTcCRUlH4enPmNH2JEQ/viewform) from which you will learn all about what we are looking for in this project. If you have any other questions or concerns, email reily.mcgee@colorado.edu and we will be happy to answer any question you may have!
 
-<img src="https://github.com/RKJMcGee/The-Pain-Rituals-Anthology/blob/1eb2c001a5cb75201d0b85734bff6323392e8e87/Omar%20Delawar%20Hope%20Despite%20The%20Pain.jpg" style="display: block; margin: auto;" />
+<img src="https://github.com/RKJMcGee/The-Pain-Rituals-Anthology/blob/1b66ee132b0f7ec28307e361791d0560bfb8359a/assets/Omar%20Delawar%20Hope%20Despite%20The%20Pain.jpg" style="display: block; margin: auto;" />
