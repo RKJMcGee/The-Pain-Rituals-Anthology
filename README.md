@@ -1,4 +1,4 @@
-| [Home](https://rkjmcgee.github.io/The-Pain-Rituals-Anthology/) | [Contributors](https://rkjmcgee.github.io/The-Pain-Rituals-Anthology/Contributors) | 
+| [Home](https://rkjmcgee.github.io/The-Pain-Rituals-Anthology/) | [Contributors](https://rkjmcgee.github.io/The-Pain-Rituals-Anthology/Contributors) | [call for creation](https://docs.google.com/forms/d/e/1FAIpQLSe5tlTnk6k3N_70TEcg_cMTO5HAnKSBTcCRUlH4enPmNH2JEQ/viewform) | [review process](https://docs.google.com/document/d/1G0TtlNbHX-6UfpbeNCBXCIGftAE-m_OpNM9oj_YQWbg/edit?usp=sharing)
 
 Welcome to The Pain Rituals Anthology website! This is a virtual collection of works dedicated to showing off the various ways pain is conceived and how pain is ritualized in various individuals. If you would like to learn more about this project, please read our [project statement](https://docs.google.com/document/d/162R6vvhPZI21Ow_47ooEEUHkMD74WF9I10QO0e_GYd0/edit?usp=sharing)! Also, consider following our [Instagram](https://www.instagram.com/thepainritualsanthology/) to keep up with our progress and updates!
 
